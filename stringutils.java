@@ -1,3 +1,4 @@
 hello
 this file contins string trelated function
-adding new info
+adding new infnknknklnl
+kkklmklo
